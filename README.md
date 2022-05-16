@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @rizin77
+- 👋 Hi, I’m richard
 - 👀 I’m interested in tecnology
 - 🌱 I’m currently learning play skywars on minecraft
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on in the use of technology
+- 📫 How to reach me by instagram @rizin77
 
 <!---
 rizin77/rizin77 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
