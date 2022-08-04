@@ -1,6 +1,6 @@
 - 👋 Hi, I’m richard
 - 👀 I’m interested in tecnology
-- 🌱 I’m currently learning play skywars on minecraft
+- 🌱 I’m currently learning: professional player of TkD E-SPORTS
 - 💞️ I’m looking to collaborate on in the use of technology
 - 📫 Reach me in my instagram @rizin77
 
